@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @andyc-1 a reecently retired software and hardware Engineer. My first degree was in Life Sciences.
+- 👋 Hi, I’m @andyc-1 a recently retired software and hardware Engineer. My first degree was in Life Sciences.
 - 👀 I’m interested in volounteering.
 - 🌱 I’m currently learning Music and German and play the double bass (jazz)
 - 💞️ I’m looking to collaborate on any work to do with the natural environment in Dorset (UK)
